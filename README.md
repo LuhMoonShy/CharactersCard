@@ -1,3 +1,3 @@
-# 🏴‍☠️ One Piece - Characters Informative Card 🏴‍☠️ 
+# 🏴‍☠️ One Piece - Character Information Card 🏴‍☠️ 
 CREATING
  
